@@ -1,2 +1,2 @@
-Anissa OUEDRAOGO
- Bernice Awinpang Akudbilla
+Anissa Tegawende OUEDRAOGO
+Bernice Awinpang Akudbilla

@@ -1,1 +1,2 @@
-# Tensorflow-Participation-Assignment
+Anissa OUEDRAOGO
+ Bernice Awinpang Akudbilla
